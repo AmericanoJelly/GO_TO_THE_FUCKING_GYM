@@ -1,0 +1,2 @@
+# GO_TO_THE_FUCKING_GYM
+운동 좀 하자
